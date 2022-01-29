@@ -1,2 +1,2 @@
 # psychic-winner
-pata nhi kya hai
+pata nhi kya hai but kuch toh hai
