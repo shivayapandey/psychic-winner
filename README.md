@@ -1,7 +1,7 @@
  # psychic-winner
 pata nhi kya hai but kuch toh hai
 fsdsda
-njnbjk;njnjn
+njnbjk;njnjnad
  hbhb;kjsdvnkjnsvfhbjhbdsd
  j''b'xfbfxbfxbxfbxjnjn
  nmbm
